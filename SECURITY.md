@@ -28,6 +28,7 @@ Below are the supported versions we have
 
 *For more details in our security policy visit Sinkwazi Road at KwaPata Secondary School√  ©™
 Email:kwapasecondaryschool@outlook.com ®
+Leave a review from Map at https://maps.app.goo.gl/U1ERti7kayYanwLe7 
 
 
 ©™
