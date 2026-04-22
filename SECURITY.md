@@ -1,7 +1,7 @@
 ATTENTION
 # Security Policy
 *E-learning and ICT Policy: The School has an e-learning room yet studies indicate a need for improved mantainance and 
-                            structured ICT use for all subjects, aiming to move away from ad hoc implementation.
+                            structured ICT use for all subject, aiming to move away from ad hoc implementation.
 
 *Academic Support and Intervention: School-based support teams are active in identifying, screening and providing 
                                      referrals for learners facing learning barriers.
