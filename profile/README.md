@@ -1,4 +1,4 @@
-## Hi there 👋
+⅚## Hi there 👋
 education for a better future for our children
 Education starts from Grade 8 to Grade 12
 <!--
@@ -11,6 +11,8 @@ It is a school that excels in music.
 🍿 Fun facts - My team usually bring their own launch. Students are served free meals at school.
 🧙 Remember, To rate your experience you have met at school don't forget to take photos and videos post them on search.
 -->
+🆔 https://www.school-register.co.za/school/kwapata-secondary-school/
+
 Best regards,
 KwaPata Secondary School Team
 
